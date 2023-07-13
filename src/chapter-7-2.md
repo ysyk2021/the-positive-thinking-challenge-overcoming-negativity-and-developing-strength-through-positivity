@@ -1,4 +1,4 @@
-Finding Meaning and Purpose through Positivity: Strategies for Discovering Personal Values and Passions through Positivity
+Strategies for Discovering Personal Values and Passions through Positivity
 ==========================================================================================================================
 
 Positive thinking can help us not only overcome negativity and develop strength, but also find meaning and purpose in life. Here are some strategies for discovering your personal values and passions through positivity:

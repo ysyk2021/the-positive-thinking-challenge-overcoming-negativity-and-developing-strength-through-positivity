@@ -1,4 +1,4 @@
-Measuring the Success of Positive Thinking: Choosing Metrics to Evaluate Positive Thinking Effectiveness
+Choosing Metrics to Evaluate Positive Thinking Effectiveness
 ========================================================================================================
 
 To measure the success of your positive thinking efforts, it's important to choose metrics that align with your goals and reflect what you hope to achieve through positive thinking. Here are some common metrics to consider:

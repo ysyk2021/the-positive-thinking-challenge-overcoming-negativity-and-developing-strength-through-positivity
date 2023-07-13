@@ -1,4 +1,4 @@
-Introduction: Overview of the Book
+Overview of the Book
 ==================================
 
 Welcome to "The Positive Thinking Challenge: Overcoming Negativity and Developing Strength Through Positivity." This book is designed to help you develop a positive thinking mindset, overcome negativity, and build resilience in the face of challenges.

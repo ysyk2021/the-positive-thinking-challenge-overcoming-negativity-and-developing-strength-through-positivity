@@ -1,4 +1,4 @@
-Finding Meaning and Purpose through Positivity: Best Practices for Living with Intention and Purpose
+Best Practices for Living with Intention and Purpose
 ====================================================================================================
 
 Living with intention and purpose can provide a sense of meaning and fulfillment in life. Here are some best practices for finding meaning and purpose through positivity:

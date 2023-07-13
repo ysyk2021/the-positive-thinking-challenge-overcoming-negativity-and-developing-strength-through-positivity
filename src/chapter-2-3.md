@@ -1,4 +1,4 @@
-Understanding Positive Thinking: Key Elements of Successful Positive Thinking
+Key Elements of Successful Positive Thinking
 =============================================================================
 
 Positive thinking is a mental attitude that emphasizes the positive aspects of life. To successfully incorporate positive thinking into our lives, there are several key elements to consider:

@@ -1,4 +1,4 @@
-Nurturing Positive Relationships: Strategies for Building Positive Relationships with Others
+Strategies for Building Positive Relationships with Others
 ============================================================================================
 
 Positive relationships are essential for our mental and emotional well-being. They provide us with a sense of belonging, support, and love. To build positive relationships with others, there are several strategies you can use:

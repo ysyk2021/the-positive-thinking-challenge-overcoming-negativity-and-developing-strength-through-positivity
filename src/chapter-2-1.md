@@ -1,4 +1,4 @@
-Understanding Positive Thinking: Defining Positive Thinking
+Defining Positive Thinking
 ===========================================================
 
 Positive thinking is a mental attitude that focuses on the positive aspects of life. It involves looking for the good in people, situations, and events, rather than dwelling on the negative. Positive thinking is not about denying or ignoring negative emotions or experiences, but rather choosing to focus on the positive aspects.

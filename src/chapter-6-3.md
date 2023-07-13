@@ -1,4 +1,4 @@
-Nurturing Positive Relationships: Best Practices for Nurturing Positive Relationships in Daily Life
+Best Practices for Nurturing Positive Relationships in Daily Life
 ===================================================================================================
 
 Positive relationships are essential for our mental and emotional well-being. To nurture positive relationships in daily life, there are several best practices you can follow:

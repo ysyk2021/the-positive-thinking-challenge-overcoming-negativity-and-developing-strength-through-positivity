@@ -1,4 +1,4 @@
-Identifying Negative Thought Patterns: Strategies for Challenging Negative Thoughts
+Strategies for Challenging Negative Thoughts
 ===================================================================================
 
 Negative thought patterns can hold us back from living a fulfilling and happy life. It's important to identify these patterns and challenge them to overcome negativity and develop strength through positivity. In this chapter, we will explore strategies for identifying negative thought patterns and challenging them.

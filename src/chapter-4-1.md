@@ -1,4 +1,4 @@
-Building a Positive Mindset: Strategies for Building a Positive Mindset
+Strategies for Building a Positive Mindset
 =======================================================================
 
 A positive mindset is essential to overcoming negativity and developing strength through positivity. It takes practice to develop a positive mindset, but the benefits are worth it. In this chapter, we will explore strategies for building a positive mindset.

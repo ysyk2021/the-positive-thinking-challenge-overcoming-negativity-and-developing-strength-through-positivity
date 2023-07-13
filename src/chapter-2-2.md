@@ -1,4 +1,4 @@
-Understanding Positive Thinking: The Benefits of Positive Thinking for Mental Health and Well-being
+The Benefits of Positive Thinking for Mental Health and Well-being
 ===================================================================================================
 
 Positive thinking is a mental attitude that emphasizes the positive aspects of life. It has been linked to many benefits for mental health and well-being, including:

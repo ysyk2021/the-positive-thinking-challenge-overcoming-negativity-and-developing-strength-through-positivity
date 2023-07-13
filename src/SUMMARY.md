@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [The Importance of Positive Thinking in Daily Life](chapter-1-1.md)
   - [Overview of the Book](chapter-1-2.md)
 - [Understanding Positive Thinking](chapter-2.md)
@@ -36,8 +35,5 @@
   - [Choosing Metrics to Evaluate Positive Thinking Effectiveness](chapter-9-1.md)
   - [Gathering Data on Positive Thinking Activities](chapter-9-2.md)
   - [Using Feedback to Continuously Improve Positive Thinking Efforts](chapter-9-3.md)
-- [Conclusion](chapter-10.md)
-  - [Recap of Key Takeaways](chapter-10-1.md)
-  - [Encouragement to Take on the Positive Thinking Challenge for Increased Strength and Resilience](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

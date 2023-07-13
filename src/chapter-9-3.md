@@ -1,4 +1,4 @@
-Measuring the Success of Positive Thinking: Using Feedback to Continuously Improve Positive Thinking Efforts
+Using Feedback to Continuously Improve Positive Thinking Efforts
 ============================================================================================================
 
 To continuously improve your positive thinking efforts, it's important to gather feedback and use it to make adjustments. Feedback can provide valuable insight into what is working well and what needs improvement.

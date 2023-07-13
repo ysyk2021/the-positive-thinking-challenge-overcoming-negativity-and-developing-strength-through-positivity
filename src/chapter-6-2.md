@@ -1,4 +1,4 @@
-Nurturing Positive Relationships: Techniques for Effective Communication and Collaboration
+Techniques for Effective Communication and Collaboration
 ==========================================================================================
 
 Effective communication and collaboration are essential for building positive relationships with others. Here are some techniques you can use to improve your communication and collaboration skills:

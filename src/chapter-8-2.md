@@ -1,4 +1,4 @@
-Practicing Mindfulness and Self-Care with Positivity: Strategies for Reducing Stress and Anxiety with a Positive Attitude
+Strategies for Reducing Stress and Anxiety with a Positive Attitude
 =========================================================================================================================
 
 Practicing mindfulness and self-care is essential for reducing stress and anxiety and maintaining positive mental health. Here are some strategies for practicing mindfulness and self-care with positivity:

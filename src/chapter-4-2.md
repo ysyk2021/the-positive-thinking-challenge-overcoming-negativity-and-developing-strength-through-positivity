@@ -1,4 +1,4 @@
-Chapter: Building a Positive Mindset: Techniques for Practicing Gratitude and Optimism
+Techniques for Practicing Gratitude and Optimism
 ======================================================================================
 
 Practicing gratitude and optimism are key components of building a positive mindset. In this chapter, we will explore techniques for cultivating gratitude and optimism to promote positivity in daily life.

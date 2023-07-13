@@ -1,4 +1,4 @@
-Chapter: Practicing Mindfulness and Self-Care with Positivity: Techniques for Practicing Mindfulness and Self-Care with Positivity
+Techniques for Practicing Mindfulness and Self-Care with Positivity
 ==================================================================================================================================
 
 Practicing mindfulness and self-care are essential components of building a positive mindset. In this chapter, we will explore techniques for incorporating mindfulness and self-care into daily life to promote positivity.

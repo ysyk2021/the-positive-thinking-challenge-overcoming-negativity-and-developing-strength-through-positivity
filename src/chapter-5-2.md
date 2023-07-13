@@ -1,4 +1,4 @@
-Embracing Change and Challenges with Positivity: Techniques for Building Resilience and Adaptability through Positivity
+Techniques for Building Resilience and Adaptability through Positivity
 =======================================================================================================================
 
 Building resilience and adaptability can help us embrace change and challenges with positivity. Here are some techniques for building resilience and adaptability through positivity:

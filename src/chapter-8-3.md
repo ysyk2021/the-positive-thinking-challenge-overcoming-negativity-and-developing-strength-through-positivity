@@ -1,4 +1,4 @@
-Practicing Mindfulness and Self-Care with Positivity: Best Practices for Nurturing Mindfulness and Self-Care Habits with Positivity
+Best Practices for Nurturing Mindfulness and Self-Care Habits with Positivity
 ===================================================================================================================================
 
 Practicing mindfulness and self-care is essential for maintaining positive mental health and well-being. Here are some best practices for nurturing mindfulness and self-care habits with positivity:
