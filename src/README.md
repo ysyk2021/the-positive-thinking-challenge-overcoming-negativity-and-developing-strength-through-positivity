@@ -8,5 +8,4 @@ Through personal anecdotes, scientific research, and practical exercises, this b
 
 Whether you're struggling with anxiety, self-doubt, or simply looking to improve your mental health and wellbeing, The Positive Thinking Challenge provides valuable insights and tools for building a positive mindset and achieving success in all areas of life. This book is for anyone seeking to cultivate a more positive outlook on life, overcome negativity, and find strength through positivity.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
