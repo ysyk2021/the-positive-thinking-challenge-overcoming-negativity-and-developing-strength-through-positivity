@@ -1,4 +1,4 @@
-Chapter: Techniques for Recognizing Negative Thought Patterns
+Techniques for Recognizing Negative Thought Patterns
 =============================================================
 
 In this chapter, we will explore effective techniques for recognizing negative thought patterns. Developing an awareness of these patterns is the first step in overcoming negativity and fostering a positive mindset. By applying the following techniques, you will gain insight into your thoughts and emotions, empowering you to challenge and transform negative thinking.

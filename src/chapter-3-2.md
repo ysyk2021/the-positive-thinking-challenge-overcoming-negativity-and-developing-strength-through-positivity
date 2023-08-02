@@ -1,4 +1,4 @@
-Chapter: Strategies for Challenging Negative Thoughts
+Strategies for Challenging Negative Thoughts
 =====================================================
 
 In this chapter, we will explore effective strategies for challenging negative thoughts. Negative thoughts can hinder our progress, lower our self-esteem, and contribute to a pessimistic mindset. By learning how to effectively challenge these thoughts, we can break free from their grip and cultivate a more positive and empowered outlook on life. Let's dive into the key strategies for challenging negative thoughts.

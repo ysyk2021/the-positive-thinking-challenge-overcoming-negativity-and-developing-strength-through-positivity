@@ -1,4 +1,4 @@
-Chapter: Strategies for Building Positive Relationships with Others
+Strategies for Building Positive Relationships with Others
 ===================================================================
 
 Positive relationships are essential for our well-being and happiness. They bring joy, support, and a sense of connection to our lives. In this chapter, we will explore effective strategies for building positive relationships with others. By implementing these strategies, individuals can cultivate meaningful connections, foster mutual respect, and create a harmonious social network.
