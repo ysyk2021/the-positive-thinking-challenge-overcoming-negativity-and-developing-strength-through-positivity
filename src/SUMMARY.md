@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [The Importance of Positive Thinking in Daily Life](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Understanding Positive Thinking](chapter-2.md)
   - [Defining Positive Thinking](chapter-2-1.md)
   - [The Benefits of Positive Thinking for Mental Health and Well-being](chapter-2-2.md)
