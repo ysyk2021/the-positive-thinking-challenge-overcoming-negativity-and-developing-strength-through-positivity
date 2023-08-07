@@ -16,7 +16,7 @@ One of the most effective techniques for practicing gratitude is keeping a grati
 
 Example entry:
 
-    Copy CodeDate: August 1st, 2023
+    Date: August 1st, 2023
 
     Today, I am grateful for:
 
@@ -36,7 +36,7 @@ Expressing gratitude to others can deepen our own sense of appreciation and fost
 
 Example:
 
-    Copy CodeDear [Recipient's Name],
+    Dear [Recipient's Name],
 
     I hope this letter finds you well. I wanted to take a moment to express my deep gratitude and appreciation for your presence in my life. Your kindness, support, and friendship have made a significant impact, and I am truly grateful.
 
@@ -62,7 +62,7 @@ Optimism empowers us to view challenges as opportunities for growth and learning
 
 Example reframing:
 
-    Copy CodeInitial Negative Thought: "I failed to secure the promotion. I'll never be successful in my career."
+    Initial Negative Thought: "I failed to secure the promotion. I'll never be successful in my career."
 
     Reframed Positive Thought: "Though I didn't secure the promotion this time, it is an opportunity for me to assess my growth areas and enhance my skills. I am determined to learn from this experience, work on my professional development, and strive for success in the future."
 
