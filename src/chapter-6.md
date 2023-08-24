@@ -1,5 +1,3 @@
-Nurturing Positive Relationships
-================================
 
 Positive relationships are essential for our mental and emotional well-being. They provide us with a sense of belonging, support, and love. In this chapter, we will explore strategies for building positive relationships with others, techniques for effective communication and collaboration, and best practices for nurturing positive relationships in daily life.
 

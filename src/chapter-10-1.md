@@ -1,5 +1,3 @@
-Recap of Key Takeaways
-==================================
 
 In this book, we explored the power of positive thinking and how it can help us overcome negativity and develop strength. Here are some key takeaways from our journey:
 

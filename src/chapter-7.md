@@ -1,5 +1,3 @@
-Finding Meaning and Purpose through Positivity
-==============================================
 
 Finding meaning and purpose in life is essential for living a fulfilling and satisfying life. Here are some sub-chapters that will help you discover your personal values, passions, and live with intention and purpose.
 

@@ -1,5 +1,3 @@
-Identifying Negative Thought Patterns
-=====================================
 
 Negative thought patterns can hold us back from living a fulfilling and happy life. It's important to identify these patterns and challenge them to overcome negativity and develop strength through positivity. In this chapter, we will explore techniques for recognizing negative thought patterns, strategies for challenging negative thoughts, and best practices for reframing negative thoughts into positive ones.
 

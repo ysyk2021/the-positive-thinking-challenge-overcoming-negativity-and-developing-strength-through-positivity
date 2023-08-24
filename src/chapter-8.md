@@ -1,5 +1,3 @@
-Practicing Mindfulness and Self-Care with Positivity
-====================================================
 
 In today's fast-paced world, it is essential to prioritize self-care and mindfulness to maintain a positive outlook on life. Practicing mindfulness and self-care can help reduce stress, anxiety, and negative thoughts. In this chapter, we will explore techniques for practicing mindfulness and self-care with positivity.
 

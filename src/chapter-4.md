@@ -1,5 +1,3 @@
-Building a Positive Mindset
-===========================
 
 A positive mindset is essential to living a fulfilling and happy life. It takes practice to develop, but the benefits are worth it. In this chapter, we will explore strategies for building a positive mindset, techniques for practicing gratitude and optimism, and best practices for nurturing a positive outlook on life.
 

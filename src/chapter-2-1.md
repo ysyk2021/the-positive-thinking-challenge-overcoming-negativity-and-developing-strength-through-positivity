@@ -1,5 +1,3 @@
-Defining Positive Thinking
-===================================
 
 Positive thinking is a powerful mindset that allows individuals to overcome negativity and develop inner strength through the lens of positivity. In this chapter, we will delve into the definition of positive thinking, explore its key components, and understand how it can transform our lives.
 

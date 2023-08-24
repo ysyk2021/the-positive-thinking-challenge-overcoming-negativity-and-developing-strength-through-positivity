@@ -1,5 +1,3 @@
-Techniques for Practicing Mindfulness and Self-Care with Positivity
-============================================================================
 
 In this chapter, we will explore various techniques for practicing mindfulness and self-care with positivity. These techniques will help you cultivate a greater sense of awareness, enhance your well-being, and develop resilience in the face of negativity. Let's delve into the effective strategies for nurturing mindfulness and self-care with positivity.
 

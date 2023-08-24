@@ -1,5 +1,3 @@
-Encouragement to Take on the Positive Thinking Challenge for Increased Strength and Resilience
-==========================================================================================================
 
 Congratulations on completing The Positive Thinking Challenge! By taking the steps outlined in this book, you have already started developing a positive mindset and building resilience. Remember that positivity is a journey, not a destination. It takes continuous effort to maintain a positive outlook on life.
 

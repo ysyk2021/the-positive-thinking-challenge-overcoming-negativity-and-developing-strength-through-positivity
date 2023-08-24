@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we explored the power of positive thinking and how it can help us overcome negativity and develop strength. We discussed strategies for building positive relationships with others, techniques for effective communication and collaboration, and best practices for nurturing positive relationships in daily life.
 

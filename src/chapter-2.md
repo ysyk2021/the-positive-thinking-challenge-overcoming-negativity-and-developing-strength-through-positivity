@@ -1,5 +1,3 @@
-Understanding Positive Thinking
-===============================
 
 Positive thinking is a mental attitude that focuses on the positive aspects of life. It involves looking for the good in people, situations, and events, rather than dwelling on the negative. In this chapter, we will explore the definition of positive thinking, the benefits of positive thinking for mental health and well-being, and the key elements of successful positive thinking.
 
